@@ -1,6 +1,6 @@
 ### Hi there, I'm Ala Eddine 👋
 
-## I'm a Cyber security Engineer, Developer, and Teacher !
+## I'm a Cyber security student, Developer, and Teacher !
 
 - 🔭 I'm working on Send It...
 - 🌱 I’m currently learning everything 🤣
